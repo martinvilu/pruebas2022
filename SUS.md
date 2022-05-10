@@ -1,1 +1,0 @@
-![amongus](https://static.wikia.nocookie.net/amongus/images/5/52/Amarillo.png/revision/latest?cb=20210613094033&path-prefix=es)
