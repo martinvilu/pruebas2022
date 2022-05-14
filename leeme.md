@@ -1,4 +1,4 @@
-# Preámbulo (leer cuchando el himno y tomando mate) 
+# Preámbulo
 Nos, los representantes del pueblo de la Nación Argentina, reunidos en Congreso General
 Constituyente por voluntad y elección de las provincias que la componen, en cumplimiento de
 pactos preexistentes, con el objeto de constituir la unión nacional, afianzar la justicia, consolidar
